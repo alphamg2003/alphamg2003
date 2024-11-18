@@ -1,6 +1,6 @@
 # Terms and conditions for making PowerPoint with me
 
-Here are the rules if you wish to collaborate in making PowerPoint with me. This applys to University subjects that needs presentation in project and requires 2+ people on doing PowerPoint that I involved in. Please read carefully, and asjk me if you are unclear.
+Here are the rules if you wish to collaborate in making PowerPoint with me. This applys to University subjects that needs presentation in project and requires 2+ people on doing PowerPoint that I involved in. Please read carefully, and ask me if you are unclear.
 
 ## About PowerPoint
 
