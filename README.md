@@ -19,7 +19,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Gender: ♂️ , straight
 
-- Age: **19** (born in 2003)
+- Age: **21** (born in 2003)
 
 - Birthday: Dec. 12th
 
