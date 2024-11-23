@@ -48,6 +48,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 ## Current project - Main purpose of using GitHub:
 
 - [osu! Mg](https://github.com/alphamg2003/osu-mg-reload)
+- [Alpha Mg - VTuber](https://github.com/alphamg2003/Alpha_Mg_VTuber)
 
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
