@@ -1,4 +1,4 @@
-[Before you advance]: My old account greenmg2003 has been flagged and I can't do anything at this moment. Moved to alphamg2003 account for project continual!
+[Before you advance]: My old account greenmg2003 has been flagged and I can't do anything at this moment. Temporarily moved to alphamg2003 account for project continual!
 
 This intro is taken from my old intro, so you can recognize me easily!
 
