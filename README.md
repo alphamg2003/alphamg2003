@@ -1,4 +1,4 @@
-[Before you advance]: My old account greenmg2003 has been flagged and I can't do anything at this moment. Temporarily moved to alphamg2003 account for project continual!
+[Before you advance]: My old account greenmg2003 was flagged and I coudn't do anything at that moment. As of now, the flag is lifted and this account is for making appoval of the project, and hosting VTuber project!
 
 This intro is taken from my old intro, so you can recognize me easily!
 
