@@ -10,9 +10,7 @@ Here are the rules if you wish to collaborate in making PowerPoint with me. This
 
 Current:
 
-- [ ] Food Analysis: Only **30** hours (max **40** hours) from the time the leader announced that the report finalization is finished, since the maximium slides allowed in Powerpoint is **20** slides 
-- [x] EMS: **8 - 12** hours (max slides unlimited)
-- [ ] Environmental Modelling: **~190** hours from start (max slides ?)
+None
 
 4. Powerpoint must have clear citations and references. Push all formats to IEEE (Or APA if the teacher requires). **Without citations, I have the right to sue the person who did that part to the teacher for carelessness in making PowerPoint.**
 5. Work with Powerpoint seriously, and be enthusiast towards the work you did. I also encourage the use of images for illustration, but must be reasonable and addressed the point.
