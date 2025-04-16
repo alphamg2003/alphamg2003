@@ -17,8 +17,8 @@ Current: None
 ## About the presentation (If any)
 1. The presenter shall spend >= 60% of the time looking at the audience
 2. The presenter shall use body language to convey information easily to the audience, at least >= 20% of the presentation time. 
-3. The maximum presentation time for the whole group depends on the teacher's regulations. If there are no regulations, the maximum requirement is 15 minutes. For subjects related to the environment, the maximum is 30 - 45 minutes
-4. The presenter shall have a loud, clear, coherent voice, and showing confidence in front of the whole class. If the voice is not loud and clear, the microphone is required.
+3. The maximum presentation time for the whole group depends on the teacher's regulations. If there are no regulations, the maximum requirement is 15 minutes. For subjects related to the Environment Faculty, the maximum is 30 - 45 minutes
+4. The presenter shall have a loud, clear, coherent voice, and showing confidence in front of the whole class. If the voice is not loud and clear, the microphone is required to be used.
 5. The presenter shall respect the audience (teachers, students), and bows at the beginning and end of the presentation as a polite greetings.
 
 ---
