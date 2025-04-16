@@ -8,9 +8,7 @@ Here are the rules if you wish to collaborate in making PowerPoint with me. This
 2. 1 slide has a maximum of **45** words (**60** words at most, if I'm being too lenient on you, or the sentence is so long/important)
 3. Maximum time to do: Depending on each subject and the total maximum number of slides, the time will be allocated reasonably
 
-Current:
-
-None
+Current: None
 
 4. Powerpoint must have clear citations and references. Push all formats to IEEE (Or APA if the teacher requires). **Without citations, I have the right to sue the person who did that part to the teacher for carelessness in making PowerPoint.**
 5. Work with Powerpoint seriously, and be enthusiast towards the work you did. I also encourage the use of images for illustration, but must be reasonable and addressed the point.
