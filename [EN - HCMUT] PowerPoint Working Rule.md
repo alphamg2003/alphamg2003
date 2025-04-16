@@ -15,7 +15,7 @@ Current: None
 6. **Font size must be 28 or higher, unless the teacher allows you to use 20 or 24.** (Recommended 30 - 32) I have the right to report the person who did Powerpoint in that part for irresponsibility if I discover this mistake. If the group leader (not me) makes this mistake, I have the right to ask the teacher to deduct double the contribution percentage.
 
 ## About the presentation (If any)
-1. The presenter shall spend >= 40% of the time looking at the audience
+1. The presenter shall spend >= 60% of the time looking at the audience
 2. The presenter shall use body language to convey information easily to the audience, at least >= 20% of the presentation time. 
 3. The maximum presentation time for the whole group depends on the teacher's regulations. If there are no regulations, the maximum requirement is 15 minutes. For subjects related to the environment, the maximum is 30 - 45 minutes
 4. The presenter shall have a loud, clear, coherent voice, and showing confidence in front of the whole class. If the voice is not loud and clear, the microphone is required.
