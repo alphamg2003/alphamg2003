@@ -19,7 +19,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Gender: ♂️ , straight
 
-- Age: **21** (born in 2003)
+- Age: **23** (born in 2003)
 
 - Birthday: Dec. 12th
 
@@ -27,7 +27,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- My love: [Hikari Richiumu](https://github.com/hikari2006)
+- Relationship: Single
 
 ## Contact me
 
@@ -39,23 +39,20 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [Facebook](https://www.facebook.com/AlphaGreenMg)
 
-- Twitter: Wiped, I'm not going back (Okay, BlueSky, do your job)
-
-- [BlueSky](https://bsky.app/profile/alphamg2003.bsky.social)
+- Twitter: Wiped, I'm not going back
 
 - [Reddit](https://www.reddit.com/user/AlphaGreenMg)
 
-## Current project - Main purpose of using GitHub:
+## Completed project:
 
-- [osu! Mg](https://github.com/alphamg2003/osu-mg-reload)
-- [Alpha Mg - VTuber](https://github.com/alphamg2003/Alpha_Mg_VTuber)
+- [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
+
+![Project Banner Season 1](https://github.com/user-attachments/assets/a769a7f7-a899-40cf-9699-467ea15445b5)
 
 ## Favorites
-- Subject: A00 (Maths, Physics, Chemistry), IT
+- Hobbies: Drawing, enjoying musics, chatting on Discord with friends, writing stories
 
-- Hobbies: Drawing, enjoying musics, chatting on Discord with friends, solving Math puzzles
-
-- Colours: 🟢 , 🔵
+- Colours: 🟢 
 
 - Music:
 
@@ -71,17 +68,11 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
         
         + Artcore musics
         
-- Elements: Nature, Water, Fire
+- Elements: Nature, Water, Fire, Frost
 
 - Season: Winter
 
-- Chemistry Elements: Zn, Li, Mg, Ba, Ni, ...
-
-- Games: Dancing Line, osu!, Minecraft, Gacha Club, Rolling Sky,....
-
-## Characteristics
-*Alpha Green Mg*: Happy (15% chance to be sad), Kind, Calm, Talkative, Extrovert, Easily got broken heart, have 5% chance to be triggered
-*Beta Purple Mg*: Happy (5% chance to be sad), Kind, Calm, but Shy, Introvert, have 10% chance to be aggressive
+- Games: osu!, Dear My Cat, Dancing Line, Minecraft, Gacha Club, ...
 
 ## Disfavors
 
@@ -98,22 +89,21 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 - My family
     
 - Music: K-Pop music
-    
-- Games: Free Fire, PUBG,...
-    
+
+## Characteristics
+*Alpha Green Mg*: Happy (15% chance to be sad), Kind, Calm, Talkative, Extrovert, got broken heart.
+*Hikari Maguneshiumu*: Happy (5% chance to be sad), Kind, Calm, but Shy, Introvert, have 10% chance to be aggressive
+
+
 # Motto
-    
-"A useless nature halcyon-catboy who wanna be more creative and more extrovert (':"
-    
-"Be Ourselves. Kelp Calm. And Stay Peacefully."
     
 "Smart people always try to protect the environment, stupid people are those who constantly destroy the environment without thinking deeply."
     
-"The connection between parents and children are only beautiful if they can understand together, if they lost it, then it'll just be the sand..."
+"The connection between the couple are only beautiful if they can understand together, if they lost it, then it'll just be the sand..."
 
 # Quote from others
 
-There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
+There's, Hydrogen and Helium then Lithium Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
 
 \- HTG, 2021 -
 
