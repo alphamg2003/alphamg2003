@@ -96,7 +96,8 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ## Characteristics
 *Alpha Green Mg*: Happy (15% chance to be sad), Kind, Calm, Talkative, Extrovert, got broken heart.
-*Hikari Maguneshiumu*: Happy (5% chance to be sad), Kind, Calm, but Shy, Introvert, have 10% chance to be aggressive
+
+*Maguneshiumu*: Happy (5% chance to be sad), Kind, Calm, but Shy, Introvert, have 10% chance to be aggressive
 
 
 # Motto
