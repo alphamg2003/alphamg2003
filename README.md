@@ -43,6 +43,10 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [Reddit](https://www.reddit.com/user/AlphaGreenMg)
 
+## Current project:
+
+- [osu! Gacha Club: Revival (osu! Mg: Revival - Season 2)](https://github.com/alphamg2003/osu_mg_solitary)
+
 ## Completed project:
 
 - [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
@@ -110,6 +114,8 @@ There's, Hydrogen and Helium then Lithium Beryllium; Boron Carbon everywhere, wi
 "In every single life, everything can't be happened flawlessly as their wish"
 
 \- Thori -
+
+(Thori, your quote hit me so damn hard)
 
 ---
 
