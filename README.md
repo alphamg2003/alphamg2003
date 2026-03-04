@@ -1,19 +1,19 @@
-[Before you advance]: My old account greenmg2003 was flagged and I coudn't do anything at that moment. As of now, the flag is lifted and this account is for making appoval of the project, and hosting VTuber project!
+[Before you advance]: My old account greenmg2003 was flagged and I coudn't do anything at that moment. As of now, the flag is lifted and this account is for making appoval of the old project, and hosting VTuber project!
 
 This intro is taken from my old intro, so you can recognize me easily!
 
 -----
 
-みんなさん こんにちわ, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
+みんなさん こんにちわ, I am Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
-- My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
+- My official name: Alpha Green Mg (Maguneshiumu)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Mg-kun
 
 - My pronouns: he/him
 
@@ -66,7 +66,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
         
         + Lime - Chronomia
         
-        + Artcore musics
+        + Artcore, Piano musics
         
 - Elements: Nature, Water, Fire, Frost
 
@@ -99,7 +99,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
     
 "Smart people always try to protect the environment, stupid people are those who constantly destroy the environment without thinking deeply."
     
-"The connection between the couple are only beautiful if they can understand together, if they lost it, then it'll just be the sand..."
+"The connection between the human are only beautiful if they can understand together, if they lost it, then it'll just be the sand..."
 
 # Quote from others
 
