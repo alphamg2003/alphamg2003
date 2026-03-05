@@ -6,14 +6,14 @@ This intro is taken from my old intro, so you can recognize me easily!
 
 -----
 
-みんなさん こんにちわ, I am Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
+みんなさん こんにちわ, I am おうりつ マグネシウム (Ouristu Maguneshiumu / Alpha Green Mg)!  Lemme introduce myself! :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
-- My official name: Alpha Green Mg (Maguneshiumu)
+- My official name: Alpha Green Mg (Ouristu Maguneshiumu)
 
 - Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Mg-kun
 
