@@ -6,7 +6,7 @@ This intro is taken from my old intro, so you can recognize me easily!
 
 -----
 
-みんなさん こんにちわ, I am おうりつ マグネシウム (Ouristu Maguneshiumu / Alpha Green Mg)!  Lemme introduce myself! :>
+みんなさん こんにちわ, わたし は おうりつ マグネシウム (Hello there, I am Ouristu Maguneshiumu / Alpha Green Mg)!  Lemme introduce myself! :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
