@@ -13,7 +13,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
-- My official name: Alpha Green Mg (Ouristu Maguneshiumu)
+- My official name: Alpha Green Mg (Ouristu Maguneshiumu) (or Hikari Maguneshiumu, for legacy name)
 
 - Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Mg-kun
 
