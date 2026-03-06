@@ -29,7 +29,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- Relationship: Single
+- Relationship: Single (Taken by myself)
 
 ## Contact me
 
