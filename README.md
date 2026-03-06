@@ -1,8 +1,16 @@
 # ゆめのせかい。
 
-[Before you advance]: My old account greenmg2003 was flagged and I coudn't do anything at that moment. As of now, the flag is lifted and this account is for making appoval of the old project, and hosting VTuber project!
+[IMPORTANT - Before you advance]: 
 
-This intro is taken from my old intro, so you can recognize me easily!
+**Before you decide to step in my life:**
+
+- I love world building (one kind of roleplaying) and pure kindness. If there is a girl who accepts to tag along me, she needs to have 2 of these things, and more importantly, comes from Viet Nam, have interest in Gacha Life/Gacha Club, and have loyalty. I'll call her "X-senpai" as a first act of love
+
+- I have the signs of stage 3 depression, so be careful. I'm very easy to cry, despite I'm a grown-up
+
+**Why does this account exist?**
+
+My old account greenmg2003 was flagged and I coudn't do anything at that moment. As of now, the flag is lifted and this account is for making appoval of the old project, and hosting VTuber project! This intro is taken from my old intro, so you can recognize me easily!
 
 -----
 
@@ -15,7 +23,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - My official name: Alpha Green Mg (Ouristu Maguneshiumu) (or Hikari Maguneshiumu, for legacy name)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Mg-kun
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Mg-kun, Ouritsu-kun
 
 - My pronouns: he/him
 
