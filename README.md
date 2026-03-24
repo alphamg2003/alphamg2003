@@ -43,7 +43,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Discord account: Hikari Maguneshiumu#3460 or alpha_mg
 
-- Workshop palace: \<Closed>
+- Workshop palace: https://discord.gg/8wTpg2tADe
 
 - [YouTube](https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw)
 
