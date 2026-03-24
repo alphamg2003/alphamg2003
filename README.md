@@ -57,6 +57,9 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [osu! Gacha Club: Revival (osu! Mg: Revival - Season 2)](https://github.com/alphamg2003/osu_mg_solitary)
 
+<img width="1000" height="500" alt="Project banner Season 2" src="https://github.com/user-attachments/assets/cabef5af-d0f5-40a3-bcf1-fa45c593fed8" />
+
+
 ## Completed project:
 
 - [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
