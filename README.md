@@ -4,7 +4,7 @@
 
 **Before you decide to step in my life:**
 
-- I love world building (one kind of roleplaying) and pure kindness. If there is a girl who accepts to tag along me, she needs to have 2 of these things, and more importantly, comes from Viet Nam, have interest in Gacha Life/Gacha Club, and have loyalty. I'll call her "X-senpai" as a first act of love
+- I love world building (one kind of roleplaying) and pure kindness. If there is a girl who accepts to tag along me, she needs to have 2 of these things, and more importantly, comes from Viet Nam, have interest in Gacha Life/Gacha Club, and have loyalty (if prepared for long-term run). I'll call her "X-senpai" as a first act of love
 
 - I have the signs of stage 3 depression, so be careful. I'm very easy to cry, despite I'm a grown-up
 
