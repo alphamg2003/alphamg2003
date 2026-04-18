@@ -49,16 +49,15 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [Facebook](https://www.facebook.com/AlphaGreenMg)
 
-- Twitter: Wiped, I'm not going back
+- Twitter: [I lied, here](https://x.com/MgRestore43346)
 
 - [Reddit](https://www.reddit.com/user/AlphaGreenMg)
 
 ## Current project:
 
-- [osu! Gacha Club: Revival (osu! Mg: Revival - Season 2)](https://github.com/alphamg2003/osu_mg_solitary)
+- [osu! Gacha Club: Revival (osu! Mg: Revival - Season 3)](https://github.com/alphamg2003/osu_mg_solitary)
 
-<img width="1000" height="500" alt="Project banner Season 2" src="https://github.com/user-attachments/assets/cabef5af-d0f5-40a3-bcf1-fa45c593fed8" />
-
+<img width="1278" height="705" alt="Alpha Cat the Adventurers" src="https://github.com/user-attachments/assets/5e7f48ab-9f4e-48fd-9944-202405920ff9" />
 
 ## Completed project:
 
