@@ -57,7 +57,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [osu! Gacha Club: Revival (osu! Mg: Revival - Season 3)](https://github.com/alphamg2003/osu_mg_solitary)
 
-<img width="1278" height="705" alt="Alpha Cat the Adventurers" src="https://github.com/user-attachments/assets/5e7f48ab-9f4e-48fd-9944-202405920ff9" />
+<img width="3600" height="1800" alt="Season 3 banner (3600x1800)" src="https://github.com/user-attachments/assets/debe661f-17fe-4cef-aa03-1b23e9798525" />
 
 ## Completed project:
 
